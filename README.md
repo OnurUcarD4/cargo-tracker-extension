@@ -6,3 +6,4 @@ Kargo kodunuzu tek tıkla girerek tüm kargo şirketlerinden kargonuzun nerede o
 
 <a href="https://www36.zippyshare.com/v/B3wlkwCu/file.html">Download here. </a>
 
+<img src="https://prnt.sc/kgx-mNEOj-ts"/>
